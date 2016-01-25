@@ -1,2 +1,2 @@
 # Notice-Me-Senpai
-NOTICE ME!!
+Senpai chan! Notice me Senpaii chan! :smile
